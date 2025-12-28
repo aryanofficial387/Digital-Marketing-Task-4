@@ -30,3 +30,4 @@ In addition, a crisis management plan is outlined to handle major reputation-rel
 Overall, this Brand Reputation Management strategy demonstrates my understanding of online brand monitoring, professional communication, and audience engagement. It reflects a practical and beginner-friendly approach to maintaining a positive digital reputation for CarsFusion and showcases my ability to plan and execute reputation management strategies in a real-world digital marketing environment.
 
 ## OUTPUT
+[Internship Task 4.docx](https://github.com/user-attachments/files/24358488/Internship.Task.4.docx)
